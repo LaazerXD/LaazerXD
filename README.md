@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LaazerXD
+- 👀 I’m interested in Video Games
+- 🌱 I’m currently learning Spanish
+- 📫 How to reach me Discord: Blaazer#9956
